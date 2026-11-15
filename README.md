@@ -22,3 +22,16 @@
   </p>
   </details>
 </div>
+<p align="center" > ˚₊ ‧︵‿₊୨୧₊‿︵⠀‧˚₊ ˚ . ₊ ‧︵‿₊୨୧₊‿︵⠀‧˚₊</p>
+
+<div align="center">
+  <details>
+    <summary>[dni]⸝⸝</summary>
+    <p> <p align="center"> basic dni criteria </p>
+   <p> <p align="center"> codegold, vthad/jthad, lizzy x thad shippers </p>
+   <p> <p align="center"> LIZZY FICTKINS DNIUID, ignore the typing text one, im too lazy to change it now </p>
+    <p> <p align="center"> countryhumans fandom, block me rn lmaoooo
+  </details>
+</div>
+
+<br>
