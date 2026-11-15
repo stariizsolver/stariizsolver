@@ -9,4 +9,16 @@
 <p align="center">w2i, unfortunately i might not respond immediately because im usually offtab! ^_^</p> 
 <p align="center">dont be afraid to cuddle with me even if im with my friends, i dont mind! . murder drones fandom encouraged <3 </p>
 
-<br> 
+<br>
+
+<div align="center">
+  <details>
+    <summary>[info] ⸝⸝</summary>
+    <p> <p align="center">im in the gmt timezone! yes im a brit. no my ethnicity isnt british, im filipino. no i will not say bottle of water for you odd people.</p>
+<p align="center">i have trouble understanding sarcasm over text!! tone tags are highly appreciated if we arent close!</p>
+<p align="center">im sorry if i appear dry to you sometimes, i dont actually mean to sound like it lmaoo </p>
+<p align="center">CODEGOLD DNI CODEGOLD DNI CODEGOLD DNI CODEGOLD DNI CODEGOLD DNI CODEGOLD DNI CODEGOLD DNI CODEGOLD DNI CODEGOLD DNI 
+<p align="center">me and my friends “fight” usually, basically banter, we arent serious! dont worry about us!
+  </p>
+  </details>
+</div>
